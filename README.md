@@ -6,3 +6,5 @@ Reference link:https://grad.berkeley.edu/admissions/steps-to-apply/requirements/
 
 
 Statement of Purpose Example: https://www.graduateshotline.com/admissions/statement-of-purpose-sample1.html
+
+statement of purpose first Draft: https://docs.google.com/document/d/1lq9EegbnyD6OgF1VI73ZlAkr1LgQfWMi2kF1q9PrLOM/edit
